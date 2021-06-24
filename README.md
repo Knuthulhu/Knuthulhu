@@ -2,4 +2,4 @@
 
 You can get in contact with me on either Steam or Discord:
 https://steamcommunity.com/id/knuthulhu/
-Knuthulhu#4528
+Knuthulhu#0001
